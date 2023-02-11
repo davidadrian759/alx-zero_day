@@ -1,1 +1,1 @@
-You are now a developer
+Never give up on your dreams, strive harder andkeep trying.
